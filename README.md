@@ -1,1 +1,1 @@
-# Simple-et-eco
+# Simpl-co
